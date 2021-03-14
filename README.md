@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DoHa2904
-- 👀 I’m interested in technology, science, astrology
+- 👀 I’m interested in technology, science, spiritual, sign language, NLP
 - 🌱 I’m currently learning about Autocad
 - 💞️ I’m looking to collaborate on ideas about machine learning
 - 📫 How to reach me ... at ha.dtt2904@gmail.com
